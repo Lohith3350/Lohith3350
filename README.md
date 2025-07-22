@@ -1,5 +1,5 @@
-# 💫 About Me:
-🔭 I’m currently studying  CSE<br>👯 I’m looking to collaborate on<br>🌱 I’m currently learning things<br>
+# Hi I'm Lohith:
+🔭 I’m currently studying  CSE in Global Academy of Technology<br>👯 I’m looking to collaborate on<br>🌱 I’m currently learning things<br>
 
 
 ## 🌐 Socials:
